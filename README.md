@@ -1,1 +1,1 @@
-# Jody's-Personal-Site
+# Jody's Personal Site
